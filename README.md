@@ -7,7 +7,8 @@
   </a>
 </p>
 
-&nbsp; <p align="center"> [Strawpage!](https://immenseblue.straw.page)
+&nbsp; <p align="center"> Sign! -> [Strawpage!](https://immenseblue.straw.page)
 
 <p align="center"> Might not be on tab! so Whisp2int especially if I have that I'm doing smth in my name 
 <p align="center"> Do not take inspo from my ponies ! 
+<p align="center"> Ship int is fine just don't be weird or problematic 
