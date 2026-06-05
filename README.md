@@ -15,3 +15,5 @@
 <p align="center"> Might not be on tab! so Whisp2int especially if I have that I'm doing smth in my name 
 <p align="center"> Do not take inspo from my ponies ! 
 <p align="center"> Ship int is fine just don't be weird or problematic 
+
+<p align="center"> <img width="495" height="187" alt="image" src="https://github.com/user-attachments/assets/d23e3595-9a9b-4f33-b09c-1b4908b19979" />
