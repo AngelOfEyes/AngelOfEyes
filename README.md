@@ -6,9 +6,7 @@
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=6frfpw20zz6aqzm3uricszyet&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color=5dd0de&bar_color_cover=false">
-  </a>
-</p>
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=6frfpw20zz6aqzm3uricszyet&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=7f51a1&bar_color_cover=false">
 
 &nbsp; <p align="center"> Sign! -> [Strawpage!](https://retrostarz.straw.page/higugetoist) [Rentry!](https://rentry.co/letters2higugeto) [Atabook!](https://higugeto.atabook.org) [Commissions!](https://ko-fi.com/shrimpyartist)
 
