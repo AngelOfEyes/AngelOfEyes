@@ -4,7 +4,7 @@
   <img src="https://file.garden/aISt_zQ_QkPKQZx-/Me/Higugeto/New%20github/Main%20graphic%202.png" width="800">
 </p>
   
-&nbsp; <p align="center"> [<img src="https://file.garden/aISt_zQ_QkPKQZx-/Me/Higugeto/New%20github/Strawpage.png" width="200">](https://retrostarz.straw.page/higugetoist) [<img src="https://file.garden/aISt_zQ_QkPKQZx-/Me/Higugeto/New%20github/Rentry.png" width="150">](https://rentry.co/letters2higugeto) [<img src="https://file.garden/aISt_zQ_QkPKQZx-/Me/Higugeto/New%20github/Atabook.png" width="150">](https://file.garden/aISt_zQ_QkPKQZx-/Me/Higugeto/New%20github/Atabook.png) [<img src="https://file.garden/aISt_zQ_QkPKQZx-/Me/Higugeto/New%20github/Commissions.png" width="150">](https://ko-fi.com/shrimpyartist)
+&nbsp; <p align="center"> [<img src="https://file.garden/aISt_zQ_QkPKQZx-/Me/Higugeto/New%20github/Strawpage.png" width="200">](https://retrostarz.straw.page/higugetoist) [<img src="https://file.garden/aISt_zQ_QkPKQZx-/Me/Higugeto/New%20github/Rentry.png" width="150">](https://rentry.co/letters2higugeto) [<img src="https://file.garden/aISt_zQ_QkPKQZx-/Me/Higugeto/New%20github/Atabook.png" width="150">](https://higugeto.atabook.org) [<img src="https://file.garden/aISt_zQ_QkPKQZx-/Me/Higugeto/New%20github/Commissions.png" width="150">](https://ko-fi.com/shrimpyartist)
 
 <p align="center">
 <a href="https://github.com/kittinan/spotify-github-profile">
